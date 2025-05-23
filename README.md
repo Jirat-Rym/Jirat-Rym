@@ -1,4 +1,4 @@
-[WIP]
+🚧🚧🚧[WIP]🚧🚧🚧
 
 - 👋 Hi, I'm Jirat, a recent B.S. Psychology graduate!
 - 👀 I’m interested in the intersectionality of people, culture, and data.
